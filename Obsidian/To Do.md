@@ -1,3 +1,0 @@
-Docs Backups
-Comics
-Sounds
